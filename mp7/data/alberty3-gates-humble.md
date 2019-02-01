@@ -1,0 +1,1 @@
+Bill Gates loses his ambition and stops thinking of creative ideas to innovate Microsoft. Microsoft's stock plunges because Elon Musk is rapidly building his SpaceX and Tesla companies. Musk becomes richer than Gates and buys Microsoft. Gates is demoted to a manager of his former company.

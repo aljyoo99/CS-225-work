@@ -1,0 +1,1 @@
+AI developed at Microsoft becomes too powerful and takes over the world. It controls all of the world's militaries and governments. Robots now rule over everyone.

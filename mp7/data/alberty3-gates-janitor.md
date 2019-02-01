@@ -1,0 +1,1 @@
+Bill Gates works as a janitor at his high school. He eventually finds a job as a janitor at Apple's headquarters.

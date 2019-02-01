@@ -1,0 +1,1 @@
+Bill Gates becomes the president of the US. He rules over the US as a dictator. The US constitution is burned and the Congress and Supreme Court are dissolved. He banishes Trump to an island in the middle of the Atlantic.
